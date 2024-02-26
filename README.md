@@ -1,0 +1,3 @@
+- 👋 Hello, I'm Sara Victoria
+- 🌱 I am currently learning power bi
+- 💞️ I am looking to collaborate in companies where I can contribute my knowledge
